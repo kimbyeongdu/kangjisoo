@@ -1,1 +1,1 @@
-# kangjisoo
+# lotto-goyunhee
